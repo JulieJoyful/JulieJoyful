@@ -18,7 +18,9 @@
 
 Thrive off `drama` on a pony game, grow up. 
 
-If you claim to have `TT/TD` (you don't). Overly sensitive people. 
+If you claim to have `TT/TD` (you don't). 
+
+Overly sensitive people. 
 
 `If you openly lovemail Diavolo, Prosciutto, Ghiaccio or Leone Abbacchio.` 
 
