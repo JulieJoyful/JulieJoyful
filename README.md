@@ -2,8 +2,6 @@
 
 <img src="https://cdn.discordapp.com/attachments/1047060118342209566/1087368424797241435/FFbjd_-VcAAd6vv.jpg" width="420" >
 
- — ![](https://mikejima.crd.co/assets/images/shadow/fb224b5a_original.gif?v=0ef41667) *Trish*◞ ...or **Seth** / **Ris** *!!* ![](https://mikejima.crd.co/assets/images/shadow/21ecc200_original.gif?v=0ef41667) 
-She`&`He ![](https://pixelbank.neocities.org/decome/swirlys/0c9fbf33.gif) ✦  **9TEEN** ![](https://mikejima.crd.co/assets/images/shadow/2381e399_original.gif?v=0ef41667)
 
  ![](https://pixelbank.neocities.org/dividers/image104.gif)
 
