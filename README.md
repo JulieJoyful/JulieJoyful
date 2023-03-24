@@ -1,6 +1,6 @@
 
 
-<img src="https://cdn.discordapp.com/attachments/1047060118342209566/1087368424797241435/FFbjd_-VcAAd6vv.jpg" width="420" >
+<img src="https://cdn.discordapp.com/attachments/1047060118342209566/1088904989780484136/tumblr_pdq4c6nug71vgdr1co3_1280.png" width="420" >
 
 
  ![](https://pixelbank.neocities.org/dividers/image104.gif)
