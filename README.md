@@ -1,6 +1,6 @@
 
 
-<img src="https://cdn.discordapp.com/attachments/1047060118342209566/1088904989780484136/tumblr_pdq4c6nug71vgdr1co3_1280.png" width="420" >
+<img src="https://media.tenor.com/XlJrVTKEABEAAAAC/jojos-bizarre-adventure-risotto-nero-jojo.gif" width="420" >
 
 
  ![](https://pixelbank.neocities.org/dividers/image104.gif)
