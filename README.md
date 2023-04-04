@@ -22,8 +22,6 @@ If you claim to have `TT/TD` (you don't).
 
 Overly sensitive people. 
 
-`If you openly lovemail Diavolo, Prosciutto, Ghiaccio or Leone Abbacchio.` 
-
 Mental illness/disorder `fakers` (Psychosis, DID, BPD, etc.) 
 
  ![](https://pixelbank.neocities.org/dividers/824810rihgjn5e0t.gif) 
