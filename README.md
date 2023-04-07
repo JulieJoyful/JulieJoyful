@@ -12,7 +12,7 @@
 
 *This is for PonyTown*
 
-`Ponies & Kins of . . Trish Una, Risotto Nero and/or Caesar Zeppeli` 
+`Ponies & Kins of . . Trish Una, Risotto Nero, Julie Joyful and/or Caesar Zeppeli` 
 
  `Anyone under 16`, I prefer talking to people closer in my age.
 
